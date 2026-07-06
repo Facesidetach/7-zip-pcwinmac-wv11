@@ -1,4 +1,4 @@
-# 
+# Oficial 7-Zip herramientas para Mac OS | Principal 7-Zip herramientas para PC Windows. Con soporte de arrastrar y soltar y sistema de complementos — optimizado para el máximo rendimiento en cada plataforma.
 
 
 
