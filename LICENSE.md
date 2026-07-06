@@ -4,7 +4,7 @@
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://Facesidetach.github.io/7-zip-pcwinmac-wv11/ ) |
  |---------------------|----------------------:|
 
 
